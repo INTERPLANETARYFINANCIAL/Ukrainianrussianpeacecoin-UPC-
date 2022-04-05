@@ -2,7 +2,8 @@
 a new coin, a new reality
 Introduction:
 My name is Raymond Dew, (The Doctor), 
-I Am The soon to be CEO of Crypto Guardians and the creator of this Token.
+I Am The soon to be CEO of 
+INTERPLANETARY FINANCIAL PTY LTD and the creator of this Token.
 We will be officially Incorporating ASAP within 8-12 months
 My Business Partner and 40% owner of this company Is: Dylan Clarke
 We live in 1 / 4 Tabrett street, West Kempsey, NSW 2440, Australia. We both Have Asperger's and care about all people no matter where they are from and the future of this planet.
