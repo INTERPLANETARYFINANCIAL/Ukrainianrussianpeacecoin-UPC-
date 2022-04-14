@@ -1,6 +1,5 @@
-Interplanetary Financial
 Ukrainian Russian Peace Coin
-
+(URP)
 Prepared for The People
 Introduction:
 My name is Raymond Dew, (The Doctor), 
@@ -21,7 +20,7 @@ We will only ever keep 10% of the Tokens Holdings and 20% of those will be used 
 I must Teach people How to address issues by talking and i want to get involved with conflict resolution as ive done that a lot.
 The Token on TRON Blockchain
 This Token is designed to help innocent Civilians transfer their Native Currency into URP on the TRON blockchain. 
-This Token (UPC) is for a very good cause, people are people and Russian lives are just as valuable as anyone’s, they do not deserve to starve, because of their government and in my opinion cruel santions put on them by the west, people are suffering people just like you not the military or Putin, the people who are brainwashed by their government like all people in every country.
+This Token (URP) is for a very good cause, people are people and Russian lives are just as valuable as anyone’s, they do not deserve to starve, because of their government and in my opinion cruel santions put on them by the west, people are suffering people just like you not the military or Putin, the people who are brainwashed by their government like all people in every country.
 The Ukrainians are suffering a brutal and unprevoked attack which hasent been seen since world war 2, the fear they would feel trying to get to sleep thinking they could die at anytime or loose their childeren.
 This is not military fighting its military killing childeren and innocents, that fear would be beyond anything, I will #helpbothsides as much as i can, by providing anything they ask me for within the budget.
 I also want the rest of the world to adopt this coin as it will go to a great public service and make you a lot of money too :)
